@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Leo-Is-Chaos
+- 👀 I’m interested in things that youtube reccomends to me
+- 🌱 I’m currently learning how to debian
+- 📫 How to reach me idk figure it out
